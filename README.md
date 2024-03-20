@@ -1,1 +1,2 @@
 # Helping-hands
+## At Helping Hands, we believe in making life easier and safer for everyone. Our platform is designed to provide assistance with everyday tasks, connecting you with trustworthy helpers who can lend a hand when you need it the most.
